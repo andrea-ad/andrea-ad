@@ -6,4 +6,4 @@ Philadelphia, PA
 
 ## Contact
 - LinkedIn: [andreamensah](https://www.linkedin.com/in/andreamensah)
-- Email: [andreaadjoba [at] @gmail [dot]com]
+- Email: [andreaadjoba [at] gmail [dot] com]
